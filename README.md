@@ -1,3 +1,1 @@
 Text
-
-riple
